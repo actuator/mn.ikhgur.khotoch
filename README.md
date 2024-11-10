@@ -1,1 +1,0 @@
-# mn.ikhgur.khotoch
